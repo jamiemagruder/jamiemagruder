@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @jamiemagruder
 - 👀 I’m interested in ...music, coffee, & design
-- 🌱 I’m currently learning ...User Experience Design
+- 🌱 I’m currently learning ...User Experience Research & Design
 - 💞️ I’m looking to collaborate on ...anything. I enjoy experience. 
 - 📫 How to reach me ... Jamiemagruder@gmail.com 
 
